@@ -21,4 +21,4 @@ sports teams at HSTAT. I enjoy spending time with my friends and family.
 5. Lunch
 6. AP Spanish
 7. AP Biology
-8. AP bio lab / Service
+8. AP Biology lab / Service
